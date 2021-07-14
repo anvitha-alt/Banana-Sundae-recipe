@@ -1,0 +1,1 @@
+Slice banana down the middle, Place banana in a desert dish, Place scoops of your icecream between the two halfs of bananas, Tope with your ingridients, Serve immediatly and enjoy! :)
